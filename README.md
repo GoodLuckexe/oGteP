@@ -1,4 +1,2 @@
 # oGteP
-consider s…….
-c
-u
+consider commiting
